@@ -1,1 +1,1 @@
-Solution of class lectue's Slide's Question
+Solution of class lecture's Slide's Question
